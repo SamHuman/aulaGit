@@ -1,3 +1,3 @@
 Este é uma página para explicar sobre o projeto.
 
-Sam Humam
+Sam Humam/Ralf China
